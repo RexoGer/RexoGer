@@ -2,7 +2,7 @@
 
 ---
 
-I'm Rexo, a Learning Progammer and I'm currently learning c++.
+I'm Rexo, a Learning Progammer and I'm currently baning ur mom
 
 <a href="https://github.com/RexoGer"><img alt="GitHub - RexoGer" title="GitHub - RexoGer" height="32" width="32" src="https://raw.githubusercontent.com/peterthehan/peterthehan/master/assets/github.svg"></a> <a href="https://discord.com/users/924770391237460000"><img alt="Discord - RexoGer#5610" title="Discord - a6yo#4744" height="32" width="32" src="https://raw.githubusercontent.com/peterthehan/peterthehan/master/assets/discord.svg"></a>
 

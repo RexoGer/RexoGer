@@ -11,4 +11,4 @@ I'm Rexo, a Learning Progammer and I'm currently baning ur mom
 
 ---
 
-*"You can only learn few things if you learn by your own mistakes, but there is no limit once you start learning from others experiences." — Unknown*
+*"You can only learn few things if you learn by your own mistakes, but there is no limit once you start learning from others experiences." — By Unknown*
